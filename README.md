@@ -1,0 +1,1 @@
+I am a local Indianapolis based graphic artist with over twenty years of experience.  My knowledge of the printing industry is very well rounded. These are a few pieces of my work over the years. <img width="468" height="33" alt="image" src="https://github.com/user-attachments/assets/b622c6a3-18df-4bbb-9e34-85238350e6db" />
